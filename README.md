@@ -1,1 +1,2 @@
 # Sobre_Mim
+Otavio Flyssak Tumelero, residente em Pato Branco, Paraná, atua profissionalmente em uma distribuidora de materiais e medicamentos. Atualmente, cursa o 4º período de Sistemas de Informação na UNIMATER.
